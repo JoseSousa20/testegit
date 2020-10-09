@@ -1,1 +1,1 @@
-ola, o meu nome é José Sousa
+ola, o meu nome e Jose Sousa.
